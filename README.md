@@ -1,1 +1,1 @@
-
+I'm 21 years old. Since 2020 I have high interest in development in Java. Hard-working and like to solve different problems. Currently, open to learning new technologies and looking for a place where I can grow professionally. I have always been a team player that believes that the result of a team depends on the effort of all team members. My main goal is to find a full-time or part-time job to improve my development skills and cultivate communication and team-working abilities.
